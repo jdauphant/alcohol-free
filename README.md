@@ -1,6 +1,6 @@
 # Awesome Alcohol Free
 
-An awesome list, that regroup alcohol free and sober experiences and informations.
+An awesome list, that regroup alcohol free and sober experiences and informations. Enjoy your full conscience!
 
 ## Awards
 
